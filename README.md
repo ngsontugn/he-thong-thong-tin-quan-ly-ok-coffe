@@ -63,7 +63,7 @@ Toàn bộ quá trình từ khảo sát – phân tích – thiết kế – mô
 ## 💬 Liên hệ
 
 - 👤 **Nguyễn Sơn Tùng**  
-- 📧 Email: ngsontugn@gmail.com  
+- 📧 Email: sontungnguyen894@gmail.com
 - 💼 LinkedIn: [linkedin.com/in/ngsontugn](https://www.linkedin.com/in/ngsontugn)  
 
 ---
